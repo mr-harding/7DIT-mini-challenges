@@ -1,0 +1,1 @@
+# 7DIT-mini-challenges
